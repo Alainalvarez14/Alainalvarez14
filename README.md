@@ -1,3 +1,6 @@
+![](https://visitor-badge.laobi.icu/badge?page_id=Alainalvarez14.Alainalvarez14)
+
+
 ### Hi there 👋
 
 Here are some ideas to get you started:
